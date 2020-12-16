@@ -4,7 +4,6 @@
 [https://github.com/ForeverCloudComputing/Home](https://github.com/ForeverCloudComputing/Home)<br>
 [https://github.com/ForeverCloudComputing/Home](https://github.com/ForeverCloudComputing/Home)<br>
 [https://github.com/ForeverCloudComputing/Home](https://github.com/ForeverCloudComputing/Home)<br>
-## 现在的群
-![群](https://github.com/ForeverCloudComputing/Home/blob/main/resources/images/now.jpg)
-## 备份群
-暂无
+## 现在的群(12.17更新)
+![群](独立科研人.jpg)
+
