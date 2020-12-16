@@ -5,5 +5,5 @@
 [https://github.com/ForeverCloudComputing/Home](https://github.com/ForeverCloudComputing/Home)<br>
 [https://github.com/ForeverCloudComputing/Home](https://github.com/ForeverCloudComputing/Home)<br>
 ## 现在的群(12.17更新)
-![群](独立科研人.jpg)
+群号：657959149
 
